@@ -1,4 +1,4 @@
-# Hi 👋 I'm Kirubharan 
+# Hi 👋 I'm KirubhaKran 
 
 🎓 2nd Year Artificial Intelligence & Data Science (AIDS) Student  
 🤖 Interested in AI, Data Science, and Software Development  
